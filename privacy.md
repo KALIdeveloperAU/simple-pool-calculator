@@ -66,4 +66,4 @@ The app doesn't send your pool information anywhere, which keeps it private. Com
 
 ## Changes to this policy
 
-We may update this policy, for example when in-app purchases are added or if Google's requirements change. We'll post the new version on this page and change the "Last updated" date. If a change is significant, we may alsoY[[Ûˆ][ˆH\Üˆ[ˆHÛÛÙÛH^H\İ[™Ë‚‚ˆÈÈÛÛXİ‚œÜ\›Ë’Ø[BY[ZYKÛİ]]\İ˜[XK]\İ˜[XB‘[XZ[ˆÜ\›ËšØ[ZØ]˜\›ÜĞÛXZ[˜ÛÛ
+We may update this policy, for example when in-app purchases are added or if Google's requirements change. We'll post the new version on this page and change the "Last updated" date. If a change is significant, we may alsoY[Â[Ã›Ë†][Ë†H\ÃœË†[Ë†HÃ›Ã›Ã™Ã›H^H\Ã[â„¢Ã‹â€šâ€šË†ÃˆÃˆÃ›Ã›ÂXÃâ€šÅ“Ãœ\â€ºÃ‹â€™Ã˜[BÂY[ZYKÃ›Ã]]\ÃËœ[XK]\ÃËœ[XBâ€˜[XZ[Ë†Ãœ\â€ºÃ‹Å¡Ã˜[ZÃ˜]Ëœ\â€ºÃœÃÃ›XZ[ËœÃ›Ã›
